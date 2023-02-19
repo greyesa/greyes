@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @greyesa
+- 👋 Hi, I’m Gustavo Reyes, @greyesa
 - 👀 I’m interested in tech
 - 📫 How to reach me greyes.a@icloud.com
 
